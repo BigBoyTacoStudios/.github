@@ -1,4 +1,4 @@
-# BigBoyTaco Studios
+# BigBoyTaco Studios (WE HAVE RENAMED BIGBOYTACO STUDIOS TO LUMEN GAMES! THIS ORGANIZATION PAGE IS POINTLESS NOW)
 
 At BigBoyTaco Studios we aim to create a enjoyable gaming experience.
 
