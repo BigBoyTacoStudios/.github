@@ -1,7 +1,4 @@
-# OFFICIAL REST IN PEACE FOR LUMEN GAMES 💀💀💀
+# - BigBoyTaco Studios
 
-# (R.I.P Lumen Games 3/3/2023)
+A place that can literally die any minute now. Anyway, we are a game studio who needs people to survive.
 
-# Well, the same fate is expected for BigBoyTaco Studios LMAO
-
-# DingusOrg (known as Yeet) is dead as of 3/7/2023 (R.I.P Yeet)
